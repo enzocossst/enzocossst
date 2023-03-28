@@ -8,7 +8,7 @@
 - 🤔 Experiencia na area de adquirencia
 - 💬 costaenzojosee@gmail.com
 - 📫 São Paulo
-- 😄 Ele/Dele
+- 😄 Ele/ Dele
 
 <div align="center">
   <a href="https://github.com/enzocossst">
