@@ -5,7 +5,7 @@
 - 🔭 Hoje trabalho como Analista de suporte 
 - 🌱 Estudante de Analise desenvolvimento de sistemas
 - 👯 Focado em Qualidade de software
-- 🤔 Experiencia na de area Adquirência | Meios de Pagamentos | Maquininhas |
+- 🤔 Experiencia na area de Adquirência | Meios de Pagamentos | Maquininhas |
 - 💬 costaenzojosee@gmail.com
 - 📫 São Paulo
 - 😄 Ele/ Dele
